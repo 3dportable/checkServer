@@ -1,1 +1,1 @@
-server/g.com
+https://map3dpro.infobox.vip/
